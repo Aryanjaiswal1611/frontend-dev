@@ -1,1 +1,0 @@
-# BridgeLabz-Training-Frontend-3Y
